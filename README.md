@@ -15,8 +15,6 @@
 </div>
 
 
-Thank you for following me! https://cybdetective.com
-
 <h1>Table of contents</h1>
 
 <a href="#mailboxes">Mailboxes and Messengers</a></br>
