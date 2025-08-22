@@ -234,4 +234,4 @@ Thank you for following me! https://cybdetective.com
 | Advanced Google Search | https://chrome.google.com/webstore/detail/advanced-google-search/chkcpeigckjajkfbjhdochlkffjdgeee | Chrome extension: advanced search query builder for Google |
 | YouTube Advanced Search | https://playlists.at/youtube/search/ | Online tool: advanced search query builder for YouTube |
 
-Thank you for following me! https://cybdetective.com
+Thank you!!!
